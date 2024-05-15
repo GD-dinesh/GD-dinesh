@@ -6,6 +6,6 @@ Sure, here's an updated version with a different fun fact:
 - 💞️ I’m looking to collaborate on data analysis and machine learning projects that drive innovation and insights.
 - 📫 How to reach me: You can reach me via email at dineshhvn005@gmail.com or connect with me on LinkedIn [[here](https://www.linkedin.com/in/dinesh-g-20bb27225/)).
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: I once hiked to the summit of Mount Kilimanjaro!
+- ⚡ Fun fact:I am interested Eding also!
 
 
