@@ -8,4 +8,4 @@ Sure, here's an updated version with a different fun fact:
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I once hiked to the summit of Mount Kilimanjaro!
 
-Feel free to customize this further if needed!
+
